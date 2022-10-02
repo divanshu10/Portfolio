@@ -9,3 +9,4 @@ be2f70ba.png)
 
 ![Screenshot (75)](https://user-images.githubusercontent.com/114609247/193455835-36395823-8826-4d16-826e-a3bf0e90b244.png)
 
+![cut blue img](https://user-images.githubusercontent.com/114609247/193456391-53224d8d-cecc-43b4-a6b5-b07cece1877a.png)
